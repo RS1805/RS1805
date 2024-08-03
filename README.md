@@ -5,6 +5,6 @@
 
 
 -  help me with unity yo.
-- sethiritisha@gmail.com / @the modernscenario on instagram 
+- sethiritisha@gmail.com / @themodernscenario on instagram 
 - Pronouns: dont ask thx xoxo
 - ⚡ Fun fact: ive been in a car accident 🎀🎀
