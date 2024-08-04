@@ -6,5 +6,5 @@
 
 -  help me with unity yo.
 - sethiritisha@gmail.com / @themodernscenario on instagram 
-- Pronouns: dont ask thx xoxo
+- Pronouns: chair/chairs
 - ⚡ Fun fact: ive been in a car accident 🎀🎀
