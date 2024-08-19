@@ -7,4 +7,4 @@
 -  help me with unity yo.
 - sethiritisha@gmail.com / @themodernscenario on instagram 
 - Pronouns: chair/chairs
-- ⚡ Fun fact: ive been in a car accident 🎀🎀
+- ⚡ Fun fact: ive had surgery  🎀🎀
